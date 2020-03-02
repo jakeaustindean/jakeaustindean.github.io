@@ -3,6 +3,9 @@ layout: post
 title: A tale in 2 citys.
 ---
 
+**ORIGINALLY POSTED ON A COMMENT FOR A QUESTION I HAD ASKED ON REDDIT**
+FIND IT HERE: https://www.reddit.com/r/travel/comments/f0uzm5/help_needed_for_a_solo_traveler_uzbekistan_romania/
+
 Thank you all for the messages regarding this. Below you will find my solution.
 
 Scouring all plane sites, forums and travel sites to try to find an answer that night. The time was swiftly approaching 5:00AM. I had conjured a list together of flights. Some of which being mentioned as answers. The cheapest flight I could find was Bishkek to Belgrade, costing £148 and sporting a very short layover in Istanbul. With my decision final and my flight booked - I closed my eyes in relief.
