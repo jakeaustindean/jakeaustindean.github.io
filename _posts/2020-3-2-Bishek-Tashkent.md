@@ -3,9 +3,6 @@ layout: post
 title: A tale in 2 citys.
 ---
 
-**ORIGINALLY POSTED ON A COMMENT FOR A QUESTION I HAD ASKED ON REDDIT**
-FIND IT HERE: https://www.reddit.com/r/travel/comments/f0uzm5/help_needed_for_a_solo_traveler_uzbekistan_romania/
-
 Thank you all for the messages regarding this. Below you will find my solution.
 
 Scouring all plane sites, forums and travel sites to try to find an answer that night. The time was swiftly approaching 5:00AM. I had conjured a list together of flights. Some of which being mentioned as answers. The cheapest flight I could find was Bishkek to Belgrade, costing £148 and sporting a very short layover in Istanbul. With my decision final and my flight booked - I closed my eyes in relief.
@@ -33,3 +30,7 @@ The bound bus started to fill up and I had realised something. The people boardi
 The bus carried on letting its passengers on until it was full. With its departure bang on scheduled time. As the journey here was, smooth as you like. With the two borders crossed I arrived firmly in Bishkek with plenty of time to get to the airport to catch my flight.
 
 Sometimes you can trust random people who look shady. I took a gamble, a $15 gamble to make sure I made my flight to Belgrade. Luckily my luck came right at a time of needing it. As I now sit on a train from Bucharest to Budapest. After a great weekend, thinking how lucky I really was that doomed day. My time in Belgrade was fantastic also, but again I will be posting more of my experiences from my travels within the next few weeks. I will add send a link to those interested.
+
+**ORIGINALLY POSTED ON A COMMENT FOR A QUESTION I HAD ASKED ON REDDIT**
+FIND IT HERE: https://www.reddit.com/r/travel/comments/f0uzm5/help_needed_for_a_solo_traveler_uzbekistan_romania/
+
