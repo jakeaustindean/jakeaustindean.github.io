@@ -3,7 +3,7 @@ layout: post
 title: A tale in 2 citys.
 ---
 
-Thank you all for the messages regarding this. Below you will find my solution.
+Whilst sitting in my hotel room in Bishkek I had a thought, I need to be in Bucharest soon. Scheduled to meet my cousin in Bucharest for my birthday which was in 7 days time. Being in the middle of Central Asia, that proved a little bit tricky to sort on the budget I was on.
 
 Scouring all plane sites, forums and travel sites to try to find an answer that night. The time was swiftly approaching 5:00AM. I had conjured a list together of flights. Some of which being mentioned as answers. The cheapest flight I could find was Bishkek to Belgrade, costing £148 and sporting a very short layover in Istanbul. With my decision final and my flight booked - I closed my eyes in relief.
 
